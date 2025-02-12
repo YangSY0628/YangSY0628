@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about robotics, AI, and my research projects.
 - 📫 How to reach me: mc45197@um.edu.mo
 - ⚡ Fun fact: I love exploring new technologies and applying them to solve real-world problems!
-- ⚡ I'm a 8a rock climber.
+- 🧗 I'm a rock climber, sport climbing 8a, sometimes trad. I also have a big wall dream. 
